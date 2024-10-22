@@ -8,3 +8,7 @@ If this text turns out to be problematic, please direct your problems to T̴̒̃
 
 
 In the end, that's the only purpouse for the text you're reading.
+
+
+
+Ready to end this file any time now.
